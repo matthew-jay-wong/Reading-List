@@ -3,7 +3,7 @@
 ## To-Do
 
 ## Currently Reading
-
-- The Sun Also Rises | Ernest Hemingway
+- Trainspotting | Irvine Welsh
 
 ## Done
+- The Sun Also Rises | Ernest Hemingway
